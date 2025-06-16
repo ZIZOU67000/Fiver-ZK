@@ -19,7 +19,7 @@ Besoin d'une identité visuelle qui marque les esprits ? Logos, affiches, flyers
 Assurez une communication sans faute. Je traque et corrige les erreurs d'orthographe, de grammaire et de syntaxe pour des documents irréprochables.
 
 ### 🌐 Traductions Précises et Fluides
-Franchissez les barrières linguistiques ! Je traduis vos textes avec précision et clarté du français vers l'anglais/italien et inversement.
+Franchissez les barrières linguistiques ! Je traduis vos textes avec précision et clarté de l'anglais/italien vers le français, et faire de mon mieux inversement.
 
 ### 📄 Rédaction CV & Lettres de Motivation Stratégiques
 Décrochez le poste de vos rêves. Je conçois des CV modernes, clairs et percutants, accompagnés de lettres de motivation sur-mesure qui vous démarquent.
